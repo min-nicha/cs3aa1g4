@@ -1,1 +1,1 @@
-ndi to final and ndi ito yung repository na isusubmit thnxx
+yung code nasa index
